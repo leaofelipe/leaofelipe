@@ -6,6 +6,4 @@
 ### Find me elsewhere 🌎
 
 🖥 [Site](https://felipeleao.com) <br>
-🐦 [Twitter](https://twitter.com/felipeleaobr) <br>
-📸 [Instagram](https://instagram.com/felipeleaobr) <br>
 💼 [LinkedIn](https://www.linkedin.com/in/leaofelipe) <br>
