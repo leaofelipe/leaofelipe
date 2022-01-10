@@ -1,8 +1,7 @@
 ### Hi, I'm Felipe! 👋
 
 🤓 Software Engineer at [Globo.com](https://www.linkedin.com/company/globo/) <br>
-🇧🇷 Born in Belo Horizonte, Brazil <br>
-🏡 Living in Rio de Janeiro, Brazil
+🏡 Born and Living in Belo Horizonte, Brazil <br>
 
 ### Find me elsewhere 🌎
 
