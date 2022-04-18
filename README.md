@@ -1,7 +1,7 @@
 ### Felipe Leão
 
 Software Engineer at [Globo.com](https://www.linkedin.com/company/globo/) <br>
-Born and Living in Belo Horizonte, Brazil <br>
+Living in Belo Horizonte, Brazil <br>
 
 ---
 
