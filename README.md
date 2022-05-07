@@ -2,3 +2,5 @@
 ##### Software Engineer at [Globo.com](https://www.linkedin.com/company/globo/) <br>
 
 [Website](https://felipeleao.com) | [LinkedIn](https://www.linkedin.com/in/leaofelipe) | [Goodreads](https://www.goodreads.com/user/show/78290150-felipe-le-o)
+
+![Cute](https://media.giphy.com/media/dBRaPog8yxFWU/giphy-downsized.gif)
